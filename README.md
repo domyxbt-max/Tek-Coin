@@ -6,7 +6,7 @@ Instead of feeding these stupid bundlers and pretending that we use their shitty
 
 I will create a website with Tek, I will do everything so SEND this Tekcoin. Join the movement.
 
-Community:
+Community: https://x.com/i/communities/2009404754074513541
 
 CA:
 
