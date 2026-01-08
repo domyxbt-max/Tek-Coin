@@ -4,6 +4,8 @@ So I present you the REAL TEK - Tekcoin
 
 Instead of feeding these stupid bundlers and pretending that we use their shitty tech we should SEND Tekcoin 
 
+I will create a website with Tek, I will do everything so SEND this Tekcoin. Join the movement.
+
 Community:
 
 CA:
