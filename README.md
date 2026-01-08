@@ -8,6 +8,6 @@ I will create a website with Tek, I will do everything so SEND this Tekcoin. Joi
 
 Community: https://x.com/i/communities/2009404754074513541
 
-CA:
+CA: 3oxEpvZVD1Wzw33aGjxrRTWJToSyASgi7S7iEuaCpump
 
 <img width="500" height="500" alt="fasfafaf" src="https://github.com/user-attachments/assets/c275334b-8c0e-4515-bcb2-ef5c47b83896" />
